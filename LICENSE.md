@@ -1,4 +1,4 @@
-# 
+# VIP breakout trading bot extensões for Mac OS | Premium breakout trading bot extensões for PC Windows. Featuring API de exchange centralizada and negociação de futuros — optimized for maximum performance.
 
 
 
